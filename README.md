@@ -1,4 +1,4 @@
-# Semana-LP
+# Semana de Nivelamento em Linguagem de Programação - Workshop
 
 Obrigado a todos que estão participando e espero que isso ajude vocês no processo de aprendizagem.
 
