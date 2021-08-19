@@ -9,6 +9,7 @@ Obrigado a todos que estão participando e espero que isso ajude vocês no proce
 **Links aulas**
 1. [Day 1](https://drive.google.com/file/d/1h4qo07G2hwVwpG5BUPujaxvWpgTnWX4Q/view?usp=sharing)
 2. [Day 2](https://drive.google.com/file/d/1DfPfwdmu7Ksr5U00R4d2uAtPrv0YYKTB/view?usp=sharing)
+3. [Day 3](https://drive.google.com/file/d/1HslXaD9We-o0dSFZQZCfsbwIEl0wCdnB/view?usp=sharing)
 
 *Obs.: Caso os links peçam autorização, podem solicitar que eu libero o acesso*
 
